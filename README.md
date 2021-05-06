@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Slowzy-is-online
+- 👀 I’m interested in Anime,Comics,VideoGames,Food,Minecarft 
+- 📫 How to reach me Discord: Slowzyシ#0966
